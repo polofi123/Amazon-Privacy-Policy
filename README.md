@@ -89,4 +89,3 @@ Questions or concerns? Contact us at:
 **bernadomendesbusiness@gmail.com**
 
 Polofi Privacy Team  
-[Your Address Here]  
